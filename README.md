@@ -1,0 +1,2 @@
+- hi im a potential idiot and im also obsessed with gay couples thaaankssss
+- i also like ducks and cats and alpacas and bunnies a-
